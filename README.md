@@ -1,4 +1,3 @@
 # Introduction
 Getting Familiar with Git and Github
-
-* Desmond Edem | `meetdesmond.edem@gmail.com` | 08067490432 | Lagos, Nigeria
+* Samuel Nnaji| 'samuelnnj@gmail.com' | 08142858384 | Abuja
