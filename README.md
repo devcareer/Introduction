@@ -15,7 +15,7 @@ Ogunfemi Arafah Ayobami | `ayobamiarafat09@gmail.com` | 08134314679 | Lagos, Nig
 
 *onothoja oghenemarho | marho219@gmail.com | 08093129998 | Oyo, Nigeria
 
->> Full Name: Ajagbe Tunde Amodu
->> Email: tundeajagbea@gmail.com
->> Phone Number: +2348106887783
->> Location: Ibadan
+ Full Name: Ajagbe Tunde Amodu
+ Email: tundeajagbea@gmail.com
+ Phone Number: +2348106887783
+ Location: Ibadan
