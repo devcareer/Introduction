@@ -7,6 +7,11 @@ Sandra Okafor | sandraifeoma22@gmail.com | 08102003838 | Abuja
 Ogunfemi Arafah Ayobami | `ayobamiarafat09@gmail.com` | 08134314679 | Lagos, Nigeria
 * Chidi Okoye | `okoyecb@gmail.com` | 090000888999 | Lagos, Nigeria
 
+* Full Name: Balogun Azeezat Bukola
+* Email Address: balogunzzt@gmail.com
+* Phone Number: 08107471203
+* Location: Hub 67, Ibadan, Oyo State, Nigeria.
+
 * onothoja oghenemarho | marho219@gmail.com | 08093129998 | Oyo, Nigeria
 
 
