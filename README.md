@@ -8,12 +8,17 @@ Ogunfemi Arafah Ayobami | `ayobamiarafat09@gmail.com` | 08134314679 | Lagos, Nig
 * Chidi Okoye | `okoyecb@gmail.com` | 090000888999 | Lagos, Nigeria
 
 
-* Full Name: Ropo John Olatujoye
-* Email Address: princeolatjohnjoe@yahoo.com
-* Phone Number: 08086180775
-* Location: Impact Hub, Ikoyi
-
-*onothoja oghenemarho | marho219@gmail.com | 08093129998 | Oyo, Nigeria
 
 
-Akinsoji Hammed Adisa | harksodje@gmail.com | 08038534255 | Oyo, Nigeria.
+
+
+
+
+
+
+
+* Full Name: Balogun Azeezat Bukola
+* Email Address: balogunzzt@gmail.com
+* Phone Number: 08107471203
+* Location: Hub 67, Ibadan, Oyo State, Nigeria
+
