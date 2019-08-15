@@ -13,7 +13,9 @@ Ogunfemi Arafah Ayobami | `ayobamiarafat09@gmail.com` | 08134314679 | Lagos, Nig
 * Phone Number: 08086180775
 * Location: Impact Hub, Ikoyi
 
-*onothoja oghenemarho | marho219@gmail.com | 08093129998 | Oyo, Nigeria
+* onothoja oghenemarho | marho219@gmail.com | 08093129998 | Oyo, Nigeria
 
 
 Akinsoji Hammed Adisa | harksodje@gmail.com | 08038534255 | Oyo, Nigeria.
+
+* Osunkunle Olanrewaju Olukunle| `osunkunleolanrewaju@gmail.com` | 07034686187 | Oyo, Nigeria
