@@ -21,3 +21,5 @@ Akinsoji Hammed Adisa | harksodje@gmail.com | 08038534255 | Oyo, Nigeria.
 Akinsoji Hammed Adisa | harksodje@gmail.com | 08038534255 | Oyo, Nigeria.
 
 * Osunkunle Olanrewaju Olukunle| `osunkunleolanrewaju@gmail.com` | 07034686187 | Oyo, Nigeria.
+
+* Ayomikun Mary Emmanuel | `adeolaayo31@yahoo.com` | 08167144748 | Oyo, Nigeria.
