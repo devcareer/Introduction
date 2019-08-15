@@ -35,3 +35,4 @@ Akinsoji Hammed Adisa | harksodje@gmail.com | 08038534255 | Oyo, Nigeria.
 
 * Oyedeji Zainab | `ololadeoselu@yahoo.com` | 08082269035 | Lagos, Nigeria.
 
+* Owojori Ernest Tolulope | owojori.tolulope@gmail.com | 08154086179 | Oyo
